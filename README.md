@@ -86,3 +86,14 @@
 
 `MIT License` - открытый код для любых целей.
 
+---
+
+[Telegram (первый) - Maxim Dupley](https://t.me/quadd4rv1n7)
+
+[Telegram (второй) - Maxim Dupley](https://t.me/dupley_maxim_1999)
+
+[Ссылка на курсы Stepik](https://stepik.org/users/150943726/profile)
+
+**Автор:** Дуплей Максим Игоревич
+
+**Дата:** 07.04.2025
